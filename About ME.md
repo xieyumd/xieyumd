@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @xieyumd
+- 👋 Hi, I’m Yu XIE, MD,PhD @xieyumd
 - 👀 I’m an Obstetrician and Gynecologist who specialized in lower genital tract diseases.
 - 🌱 I’m interested and currently learning multidisciplinary approach for clinical practice.
 - 💞️ I’m looking to collaborate on clinical application.
